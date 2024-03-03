@@ -5,6 +5,9 @@ In its chaos, hearts beat with heightened fervor,
 Secrets whispered, alliances tested, passions ablaze,
 In its wake, we find truth, strength, and the essence of our humanity.
 
+![Screenshot (105)](https://github.com/rafaelrgsenhorinho/Desafios-Ai-Azure-DIO/assets/96319650/cfa06974-3446-4a69-9c08-87275ee8b7e5)
+
+
 
 Sentence 2
 
@@ -19,3 +22,7 @@ Love triangles, betrayal, secrets revealed, alliances formed and broken - drama 
 And yet, for all its chaos and unpredictability, drama is also what makes life interesting. It adds spice to the mundane, depth to the shallow, and meaning to the seemingly insignificant moments we so often take for granted.
 
 So let us embrace the drama in all its messy glory, for it is a testament to the complexity of the human spirit and the richness of our shared experience. After all, what is life without a little bit of drama?
+
+![Screenshot (106)](https://github.com/rafaelrgsenhorinho/Desafios-Ai-Azure-DIO/assets/96319650/d0d52ab7-9f82-4e11-8da6-27369408b18a)
+
+![Screenshot (107)](https://github.com/rafaelrgsenhorinho/Desafios-Ai-Azure-DIO/assets/96319650/8d1edf32-a5f1-4732-87bf-5045d361c9e3)
